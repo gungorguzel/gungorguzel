@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @gungorguzel
+- 👀 I’m interested in AI
